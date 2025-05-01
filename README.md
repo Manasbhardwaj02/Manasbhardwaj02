@@ -15,5 +15,5 @@
 ---
 
 ### 📫 Connect With Me
-- [LinkedIn](https://www.linkedin.com/in/manas-bhardwaj-29980a1a4/)
+- [LinkedIn](https://www.linkedin.com/in/manas-bhardwaj-72b07b201/)
 - [Email](mailto:manasbhardwaj82638@gmail.com)
